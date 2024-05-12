@@ -23,7 +23,7 @@ Om man kommer utsockens så be aware att det är bokmässa samma helg, så kan b
 ### It's so hard to get old without a cause
 Inga presenter, mest glad för att du kommer!
 
-Bidra gärna till spel/lekar/musik: [tipsrunda](./daydrinker#tipsrunda), [musik](./daydrinker#musik), [bildspel](./daydrinker#bildspel), [bingo](./nightthinker#bingo)
+Bidra gärna till spel/lekar/musik: [tipsrunda](./daydrinker#tipsrunda), [musik](./daydrinker#musikspellista), [bildspel](./daydrinker#bildspel), [bingo](./nightthinker#bingo)
 
 Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation som ligger dig varmt om hjärtat, och kan du inte komma på någon så föreslår jag [Mind](https://mind.se/):
 * [Ge en gåva](https://mind.se/sa-kan-du-bidra/ge-en-gava/)

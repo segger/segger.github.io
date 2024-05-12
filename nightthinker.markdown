@@ -36,5 +36,5 @@ Ska det vara musikquiz? (Beror på hur många vi blir)
 Vill du bidra med något: Kanske en lek?
 
 ##### Bingo
-
+Bidra till bingobricka!
 
