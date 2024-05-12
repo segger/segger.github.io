@@ -1,0 +1,33 @@
+---
+layout: default
+---
+
+### TLDR;
+Lördagen 28 september i Göteborg - be there and be a squirrel!
+
+### Let's dance in style
+Under [Dagen](./daydrinker) är det öppet hus, på [Kvällen](./nightthinker) är det pubmiljö.
+
+Den uppmärksamma märker att det finns tid för lite ordentligare mat och en tupplur mellan delarna.
+
+### Are you gonna drop the bomb or not?
+Det finns ett facebookevent: 
+
+men OSA görs med [google forms](./bombornot) senast **14/9** för att kunna beräkna inköp (och för mitt kontrollbehov). De som anmäler sig innan 1/9 får en guldstjärna :star:
+
+Tillåtet och välkommet att ta med sig alla sina respektive, kompisar och under dagen även barn.
+
+### Sitting in a sandpit (Boende och resa)
+Om man kommer utsockens så be aware att det är bokmässa samma helg, så kan behöva vara ute i god tid för boende och resa.
+
+### It's so hard to get old without a cause
+Inga presenter, mest glad för att du kommer!
+
+Bidra gärna till spel/lekar/musik: [tipsrunda](./daydrinker#tipsrunda), [musik](./daydrinker#musik), [bildspel](./daydrinker#bildspel), [bingo](./nightthinker#bingo)
+
+Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation som ligger dig varmt om hjärtat, och kan du inte komma på någon så föreslår jag [Mind](https://mind.se/):
+* [Ge en gåva](https://mind.se/sa-kan-du-bidra/ge-en-gava/)
+* Swish: 9008533
+* PG: 90 08 53-3
+* BG: 900-8533
+
