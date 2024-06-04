@@ -11,9 +11,7 @@ Under [Dagen](./daydrinker) är det öppet hus, på [Kvällen](./nightthinker) �
 Den uppmärksamma märker att det finns tid för lite ordentligare mat och en tupplur mellan delarna.
 
 ### Are you gonna drop the bomb or not?
-Det finns ett [facebookevent](https://fb.me/1P0i6DtMJJO6DCt)
-
-men OSA görs med [google forms](./bombornot) senast **14/9** för att kunna beräkna inköp (och för mitt kontrollbehov). De som anmäler sig innan 1/9 får en guldstjärna :star:
+Det finns ett [facebookevent](https://fb.me/1P0i6DtMJJO6DCt) men OSA görs med [google forms](./bombornot) senast **14/9** för att kunna beräkna inköp (och för mitt kontrollbehov). De som anmäler sig innan 1/9 får en guldstjärna :star:
 
 Tillåtet och välkommet att ta med sig alla sina respektive, kompisar och under dagen även barn. Se [anmälan](./bombornot).
 
