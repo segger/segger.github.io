@@ -15,7 +15,7 @@ ca 11-17
 Axel Dahlströms torg
 
 #### Förtäring
-Det kommer serveras någon lättare mat, antagligen soppa och bröd. Till det öl, vin, läsk. Sedan något sötare till kaffe/te.
+Det kommer serveras någon lättare mat, antagligen soppa och bröd. Till det typ öl, vin, läsk. Sedan något sötare till kaffe/te. Det är därför jag behöver en [anmälan](./bombornot)
 
 #### Passar för
 Alla åldrar, dock endast utomhus för fyrbenta.
@@ -27,7 +27,7 @@ Lägg till musik till [spotify-listan](https://open.spotify.com/playlist/7eB0CsM
 Det kommer nog finnas lite socialspel. Kanske en gästbok.
 
 ##### Tipsrunda
-Bidra till tipsrundefrågor! Vet du något som övriga gäster inte vet om mig.
+Bidra till tipsrundefrågor! Vet du något som övriga gäster inte vet om mig. Har inte bestämt mig hur jag ska samla in dessa än, så tills dess kontakta mig på det sätt du kan :brevduva:
 
 ##### Bildspel
 Lägg till bilder som kommer visas som [bildspel](https://drive.google.com/drive/folders/1LhAhNqqfXkUMPKcAa7sN8I2c9SEYj3vV?usp=sharing)

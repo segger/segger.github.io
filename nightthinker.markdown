@@ -29,12 +29,15 @@ Pub
 
 Förhoppningsvis blir det ett mindre dansgolv.
 
-Finns lite brädspel, kanske blir det lekar
+Finns lite brädspel, går att ta med fler.
 
-Ska det vara musikquiz? (Beror på hur många vi blir)
+Ska det vara musikquiz? Beror på hur många vi blir.
 
-Vill du bidra med något: Kanske en lek?
+Vill du bidra med något?
+
+Annars blir det fri hopp och lek.
 
 ##### Bingo
 Bidra till bingobricka!
 
+Har inte bestämt mig hur jag ska samla in dessa än, så tills dess kontakta mig på det sätt du kan :röksignaler:

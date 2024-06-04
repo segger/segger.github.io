@@ -23,7 +23,7 @@ email: johanna.lynn.lahti@gmail.com
 description: >- # this means to ignore newlines until "baseurl:"
   av Alphaville kom ut 1984, så den, likt jag fyller 40 år i år
 baseurl: "" # the subpath of your site, e.g. /blog
-url: "https://segger.github.io" # the base hostname & protocol for your site, e.g. http://example.com
+url: "https://johannalynn.se/" # the base hostname & protocol for your site, e.g. http://example.com
   #twitter_username: jekyllrb
 github_username: segger
 repository: segger/segger.github.io
