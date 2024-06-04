@@ -6,7 +6,7 @@ layout: default
 Lördagen 28 september i Göteborg - be there and be a squirrel!
 
 ### Let's dance in style
-Under [Dagen](./daydrinker) är det öppet hus, på [Kvällen](./nightthinker) är det pubmiljö.
+Under [Dagen](./daydrinker) (ca 11-17) är det öppet hus, på [Kvällen](./nightthinker) (19-01) är det pubmiljö.
 
 Den uppmärksamma märker att det finns tid för lite ordentligare mat och en tupplur mellan delarna.
 
