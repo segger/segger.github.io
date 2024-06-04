@@ -15,7 +15,7 @@ Varholmsgatan 4
 Sandarna
 
 #### Förtäring
-Det är ett pub med alkoholrättigheter - betala själv i baren.
+Det är en pub med alkoholrättigheter - betala själv i baren.
 
 Det ska finnas alternativ för er som inte tycker om öl också.
 
