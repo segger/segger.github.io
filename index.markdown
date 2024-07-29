@@ -30,4 +30,5 @@ Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation 
 * BG: 900-8533
 
 ### So many adventures couldn't happen today
+* 2024-07-29: Endast två månader kvar som 30-nånting
 * 2024-06-04: Denna inbjudan är nu live!

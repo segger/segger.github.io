@@ -27,7 +27,7 @@ Lägg till musik till [spotify-listan](https://open.spotify.com/playlist/7eB0CsM
 Det kommer nog finnas lite socialspel. Kanske en gästbok.
 
 ##### Tipsrunda
-Bidra till tipsrundefrågor! Vet du något som övriga gäster inte vet om mig. Har inte bestämt mig hur jag ska samla in dessa än, så tills dess kontakta mig på det sätt du kan :brevduva:
+Bidra till tipsrundefrågor! Temat är... mig! Vet du något som övriga gäster inte vet? Skicka ett mail (helst) eller kontakta mig på annat valfritt sätt, gärna så snart som möjligt!
 
 ##### Bildspel
 Lägg till bilder som kommer visas som [bildspel](https://drive.google.com/drive/folders/1LhAhNqqfXkUMPKcAa7sN8I2c9SEYj3vV?usp=sharing)
