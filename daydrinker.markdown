@@ -21,7 +21,7 @@ Det kommer serveras någon lättare mat, antagligen soppa och bröd. Till det ty
 Alla åldrar, dock endast utomhus för fyrbenta.
 
 #### Musikspellista
-Lägg till musik till [spotify-listan](https://open.spotify.com/playlist/7eB0CsMO9Bz1TZHcM7rIHd?si=774f86d2bd72478f&pt=fa507bef66a696d026731438727bc038)
+Lägg till musik till [spotify-listan](https://open.spotify.com/playlist/7eB0CsMO9Bz1TZHcM7rIHd?si=200b6f7a1e1b4721&pt=04542ea946a20eac1b25bcc63c7497ac)
 
 #### Aktiviteter
 Det kommer nog finnas lite socialspel. Kanske en gästbok.
