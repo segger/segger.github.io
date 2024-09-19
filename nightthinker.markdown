@@ -17,7 +17,11 @@ Sandarna
 #### Förtäring
 Det är en pub med alkoholrättigheter - betala själv i baren.
 
-Det ska finnas alternativ för er som inte tycker om öl också.
+Ölen tillverkas precis bredvid i flertalet olika stilar [ölsorter](https://beerbliotek.se/vara-ol/). 
+
+Det ska finnas alternativ för er som inte tycker om öl också. Vin och g&t tillverkas inom kvarteret. Alkoholfritt mestadels läsk (längre ifrån).
+
+Lättare pubsnacks och lite varm mat (pizza). Ät det riktiga innan.
 
 #### Passar för
 De som trivs i pubmiljö (hundar tillåtna)
@@ -26,18 +30,21 @@ De som trivs i pubmiljö (hundar tillåtna)
 Pub
 
 #### Aktiviteter
+Det finns pingisbord och lite brädspel, välkommen att ta med fler!
 
-Förhoppningsvis blir det ett mindre dansgolv.
+Blir med största sannolikhet musikquiz ungefär runt **kl 20**
 
-Finns lite brädspel, går att ta med fler.
+Förhoppningsvis blir det ett mindre dansgolv (start senare under kvällen)
 
-Ska det vara musikquiz? Beror på hur många vi blir.
+Glöm inte att fylla i gästboken innan ni går!
 
-Vill du bidra med något?
+Vill du bidra med något mer?
 
-Annars blir det fri hopp och lek.
+Annars blir det fri hopp och lek övrig tid.
 
 ##### Bingo
-Bidra till bingobricka!
+Som ett sätt att hitta gemensamt med de du inte redan känner, så blir det nån form av bingobricka. Har inte riktigt löst det där med priser, förutom det där att ha skoj och kanske lära känna någon trevlig prick.
 
-Har inte bestämt mig hur jag ska samla in dessa än, så tills dess kontakta mig på det sätt du kan :röksignaler:
+Maila mig om du har några förslag på vad som ska vara med!
+Hittills har jag bland annat "hitta någon som gillar brädspel", men, tänker att det är lite för enkelt att hitta bland mina vänner och bekanta.
+

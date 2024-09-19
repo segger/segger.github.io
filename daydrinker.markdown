@@ -21,10 +21,10 @@ Det kommer serveras någon lättare mat, antagligen soppa och bröd. Till det ty
 Alla åldrar, dock endast utomhus för fyrbenta.
 
 #### Musikspellista
-Lägg till musik till [spotify-listan](https://open.spotify.com/playlist/7eB0CsMO9Bz1TZHcM7rIHd?si=200b6f7a1e1b4721&pt=04542ea946a20eac1b25bcc63c7497ac)
+Lägg till musik till [spotify-listan](https://open.spotify.com/playlist/7eB0CsMO9Bz1TZHcM7rIHd?si=3d42220e94d64071&pt=cc2ec3a5ccdb9c58a6d982961a5611da). Länk uppdaterad 19/9 (giltig 7 dagar).
 
 #### Aktiviteter
-Det kommer nog finnas lite socialspel. Kanske en gästbok.
+Det kommer finnas lite socialspel. Och en gästbok. Fyll gärna i den!
 
 ##### Tipsrunda
 Bidra till tipsrundefrågor! Temat är... mig! Vet du något som övriga gäster inte vet? Skicka ett mail (helst) eller kontakta mig på annat valfritt sätt, gärna så snart som möjligt!
