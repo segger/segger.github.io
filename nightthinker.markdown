@@ -15,7 +15,7 @@ Varholmsgatan 4
 Sandarna
 
 #### Förtäring
-Det är en pub med alkoholrättigheter - betala själv i baren.
+Det är en pub med alkoholrättigheter - betala själv i baren. Swish eller kort.
 
 Ölen tillverkas precis bredvid i flertalet olika stilar [ölsorter](https://beerbliotek.se/vara-ol/). 
 
@@ -36,11 +36,11 @@ Blir med största sannolikhet musikquiz ungefär runt **kl 20**
 
 Förhoppningsvis blir det ett mindre dansgolv (start senare under kvällen)
 
-Glöm inte att fylla i gästboken innan ni går!
+Glöm inte att fylla i gästboken!
 
 Vill du bidra med något mer?
 
-Annars blir det fri hopp och lek övrig tid.
+Annars blir det fri hopp och lek.
 
 ##### Bingo
 Som ett sätt att hitta gemensamt med de du inte redan känner, så blir det nån form av bingobricka. Har inte riktigt löst det där med priser, förutom det där att ha skoj och kanske lära känna någon trevlig prick.

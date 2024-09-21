@@ -12,6 +12,8 @@ Den uppmärksamma märker att det finns tid för lite ordentligare mat och en tu
 
 Om någon önskar guidning (promenad ca 30 min) från dagslokalen till kvällslokalen, säg till!
 
+I närheten av Axel Dahlströms torg finns pizza och thai. I närheten av Sandarna finns bland annat Ölstugan Tullen.
+
 ### Are you gonna drop the bomb or not?
 Det finns ett [facebookevent](https://fb.me/1P0i6DtMJJO6DCt) men OSA görs med [google forms](./bombornot) senast **14/9** för att kunna beräkna inköp (och för mitt kontrollbehov). De som anmäler sig innan 1/9 får en guldstjärna :star:
 
@@ -32,6 +34,7 @@ Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation 
 * BG: 900-8533
 
 ### So many adventures couldn't happen today
+* 2024-09-21: Matställen, spotifylänk igen, vilorum, än mer aktivitetsuppdatering
 * 2024-09-19: Erbjudande om guiding, uppdaterad spotifylänk, uppdatering av aktiviteter
 * 2024-09-18: Maten är provlagad, kvällslokalen inspekterad och fint väder beställt!
 * 2024-09-01: Beställning av :stars: är gjord för de ca 25 som redan anmält sig
