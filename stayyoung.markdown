@@ -63,12 +63,11 @@ Hur lång (kort) är Jojo i cm?
 #### Svar 10
 
 #### Svar på extrafråga:
-156 cm
 
 ### Priser
-Efter rättning, leta rätt på Jojo och be om ett pris (eller en kram)
+Efter rättning, leta rätt på Jojo och be om en förklaring.
 
-Om du/ni fått mer än 5 rätt, 
+Om du/ni fått mer än 5 rätt, be om ett pris (eller en kram)
 
 Om du/ni fått mer än 9 rätt, be henne lägga till er i listan nedan:
 * ...

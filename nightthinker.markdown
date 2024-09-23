@@ -17,11 +17,11 @@ Sandarna
 #### Förtäring
 Det är en pub med alkoholrättigheter - betala själv i baren. Swish eller kort.
 
-Ölen tillverkas precis bredvid i flertalet olika stilar [ölsorter](https://beerbliotek.se/vara-ol/). 
+Ölen tillverkas precis bredvid i flertalet olika stilar, titta här för [ölsorter](https://beerbliotek.se/vara-ol/). 
 
-Det ska finnas alternativ för er som inte tycker om öl också. Vin och g&t tillverkas inom kvarteret. Alkoholfritt mestadels läsk (längre ifrån).
+Det ska finnas alternativ för er som inte tycker om öl också. Vin och g&t tillverkas inom kvarteret. Alkoholfritt mestadels läsk.
 
-Lättare pubsnacks och lite varm mat (pizza). Ät det riktiga innan.
+Lättare pubsnacks och lite varm mat. Ät det riktiga innan.
 
 #### Passar för
 De som trivs i pubmiljö (hundar tillåtna)
