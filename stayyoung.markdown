@@ -4,11 +4,11 @@ layout: page
 ---
 
 ## Priser
-Efter rättning, leta rätt på Jojo och be om en förklaring.
+Efter rättning, leta rätt på Jojo och
 
-Om du/ni fått mer än 5 rätt, be om ett pris (eller en kram)
+Om du/ni fått mer än 3 rätt, be om ett pris (eller en kram)
 
-Om du/ni fått mer än 9 rätt, be henne lägga till er i listan nedan:
+Om du/ni fått mer än 7 rätt, be henne lägga till er i listan nedan:
 * ...
 
 
