@@ -36,7 +36,9 @@ Blir med största sannolikhet musikquiz ungefär runt **kl 20**
 
 Förhoppningsvis blir det ett mindre dansgolv (start senare under kvällen)
 
-Glöm inte att fylla i gästboken!
+Glöm inte att fylla i **gästboken**!
+
+**Tipspromenaden** kommer nog också finnas tillgänglig, fast utan promenad.
 
 Vill du bidra med något mer?
 
