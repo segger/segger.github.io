@@ -38,15 +38,11 @@ Förhoppningsvis blir det ett mindre dansgolv (start senare under kvällen)
 
 Glöm inte att fylla i **gästboken**!
 
-**Tipspromenaden** kommer nog också finnas tillgänglig, fast utan promenad.
+**Tipspromenaden** kommer nog också finnas tillgänglig, fast utan promenad. Likaså **bildspelet**, fast på mindre skärm.
 
-Vill du bidra med något mer?
-
-Annars blir det fri hopp och lek.
+I övrigt blir det fri hopp och lek.
 
 ##### Bingo
 Som ett sätt att hitta gemensamt med de du inte redan känner, så blir det nån form av bingobricka. Har inte riktigt löst det där med priser, förutom det där att ha skoj och kanske lära känna någon trevlig prick.
 
-Maila mig om du har några förslag på vad som ska vara med!
-Hittills har jag bland annat "hitta någon som gillar brädspel", men, tänker att det är lite för enkelt att hitta bland mina vänner och bekanta.
 

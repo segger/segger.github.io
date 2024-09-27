@@ -34,8 +34,6 @@ Nästan klart, får vi fint väder så kommer det vara ett varv runt huset. Gå 
 ##### Bildspel
 Bilderna är nu nerladdade, kontakta mig om du har någon extra du vill lägga till.
 
-Lägg till bilder som kommer visas som [bildspel](https://drive.google.com/drive/folders/1LhAhNqqfXkUMPKcAa7sN8I2c9SEYj3vV?usp=sharing)
-
 #### Bidra
 Hjälp med undanplock och städ/disk tas tacksamt emot!
 

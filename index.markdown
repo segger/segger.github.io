@@ -34,7 +34,7 @@ Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation 
 * BG: 900-8533
 
 ### So many adventures couldn't happen today
-* 2024-09-27: Bildspel iordningsställt, tipspromenad talonger utskrivna, gästbok förberedd - nu kör vi!
+* 2024-09-27: Bildspel klart, tipspromenad nästan klart, gästbok redo - nu kör vi!
 * 2024-09-21: Matställen, spotifylänk igen, vilorum, än mer aktivitetsuppdatering
 * 2024-09-19: Erbjudande om guiding, uppdaterad spotifylänk, uppdatering av aktiviteter
 * 2024-09-18: Maten är provlagad, kvällslokalen inspekterad och fint väder beställt!
