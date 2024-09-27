@@ -3,6 +3,15 @@ title: Tipspromenad
 layout: page
 ---
 
+## Priser
+Efter rättning, leta rätt på Jojo och be om en förklaring.
+
+Om du/ni fått mer än 5 rätt, be om ett pris (eller en kram)
+
+Om du/ni fått mer än 9 rätt, be henne lägga till er i listan nedan:
+* ...
+
+
 ## Rättning
 
 #### Svar 1
@@ -34,18 +43,11 @@ X Idé- och lärdomshistoria
 
 #### Svar 10
 2 Memoplanner (Dagen)
+
 2 Pooppels APA (Kvällen)
 
 #### Svar på extrafråga:
 156 cm
-
-### Priser
-Efter rättning, leta rätt på Jojo och be om en förklaring.
-
-Om du/ni fått mer än 5 rätt, be om ett pris (eller en kram)
-
-Om du/ni fått mer än 9 rätt, be henne lägga till er i listan nedan:
-* ...
 
 ## Frågor
 #### Fråga 1
