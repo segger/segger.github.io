@@ -42,7 +42,8 @@ Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation 
 * PG: 90 08 53-3
 * BG: 900-8533
 
-### 42
-Inget måste, men får gärna säga till mig om du/ni planerar att komma - mest för mitt kontrollbehov (kanske för brandskyddet om vi blir väldigt många)
+### Svar: 42
+Inget måste, men säg gärna hur många ni planerar att bli - mest för mitt kontrollbehov (kanske för brandskyddet om vi blir väldigt många)  
+
 I
 
