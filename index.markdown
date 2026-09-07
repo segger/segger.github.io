@@ -43,7 +43,7 @@ Om du ändå vill ge pengar, så ge en gåva till en välgörenhetsorganisation 
 * BG: 900-8533
 
 ### Svar: 42
-Inget måste, men säg gärna hur många ni planerar att bli - mest för mitt kontrollbehov (kanske för brandskyddet om vi blir väldigt många)  
+Inget måste, men säg gärna hur många ni planerar att bli - mest för mitt kontrollbehov...
 
-I
+IIIII
 
